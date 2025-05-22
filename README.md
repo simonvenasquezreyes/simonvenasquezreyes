@@ -3,5 +3,4 @@
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on web projects 
 - 📫 How to reach me: reyesimon31@gmail.com 
-- 😄 Pronouns: He
 - ⚡ Fun fact: I love old cameras 
